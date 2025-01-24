@@ -1,7 +1,7 @@
 ### Hi👋, I'm Jule Brian!
-<code>Information Technology Student</code> <br>
+<code>4th Year Information Technology Student</code> <br>
 
-🧑‍🎓 4th year <a href="" rel="nofollow">Information Technology Student</a> at University of Cebu - Banilad Campus<br>
+🧑‍🎓 Studied <a href="" rel="nofollow">Information Technology</a> at University of Cebu - Banilad Campus<br>
 🔭 Currently looking for a company to OJT<br>
 
 ## 🌐 Socials:
