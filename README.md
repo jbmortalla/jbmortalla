@@ -2,7 +2,7 @@
 <code>4th Year Information Technology Student</code> <br>
 
 🧑‍🎓 Studied <a href="" rel="nofollow">Information Technology</a> at University of Cebu - Banilad Campus<br>
-🤓 Eager to learn and contribute 
+🤓 Eager to learn and contribute <br>
 🔭 Currently looking for a company to OJT<br>
 
 ## 🌐 Socials:
